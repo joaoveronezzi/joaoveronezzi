@@ -1,9 +1,5 @@
-## Hi there 👋
 
-<!--
-**joaoveronezzi/joaoveronezzi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
+oi eu gostos de jogos e carros e velozes e furiosos
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
@@ -13,4 +9,7 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
--->
+
+![](https://lartbr.com.br/wp-content/webp-express/webp-images/uploads/2023/10/IMG_8007.jpg.webp)
+
+💙
