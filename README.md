@@ -2,7 +2,9 @@
 oi eu gostos de jogos e carros e velozes e furiosos
 
 - 🔭 
-Atualmente estou trabalhando em metornar ![](https://www.bs9.com.br/variedades/leo-stronda-vira-evangelico-e-deixa-bonde-da-stronda/10141/)
+Atualmente estou trabalhando em metornar montro na academia 
+
+ ![](https://www.bs9.com.br/variedades/leo-stronda-vira-evangelico-e-deixa-bonde-da-stronda/10141/)
 
 
 
