@@ -28,7 +28,6 @@ Atualmente estou trabalhando em metornar ![](https://www.bs9.com.br/variedades/l
 
 
 
-
 ![](https://lartbr.com.br/wp-content/webp-express/webp-images/uploads/2023/10/IMG_8007.jpg.webp)
 
 💙
